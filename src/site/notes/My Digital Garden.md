@@ -3,7 +3,4 @@
 ---
 
 # Home
-- [[Writeups\|Writeups]]
-- [[Cooking\|Cooking]]
-- [[Outdoors\|Outdoors]]
 
