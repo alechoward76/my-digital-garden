@@ -10,6 +10,6 @@
 - 1 tsp Tabasco
 - Mix well & Serve with Pita!
 
-*Source: https://www.pintrest.com/pin/tazikis-mediterranean-cafe-pimento-and-cheese--14355292539559658*
+*Source:https://www.pinterest.com/pin/tazikis-mediterranean-cafe-pimento-and-cheese--14355292539559658/*
 
 ![Pasted image 20240217160945.png](/img/user/Pasted%20image%2020240217160945.png)
