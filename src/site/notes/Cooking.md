@@ -4,4 +4,4 @@
 
 - [[Lemon Butter Chicken\|Lemon Butter Chicken]]
 - [[Irish Guinness Beef Stew\|Irish Guinness Beef Stew]]
-- [[Breakfast Sliders\|Breakfast Sliders]]
+- [[Taziki's Spicy Pimento Cheese\|Taziki's Spicy Pimento Cheese]]
